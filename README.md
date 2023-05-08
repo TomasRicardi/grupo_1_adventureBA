@@ -22,13 +22,13 @@ Hobby: Gastronomía y deportes
 Carolina Salvucci
 
 
-Tomas Ricardi
+Tomas Ricardi - 
+Áreas de experiencia: Diseño Gráfico, peón en servicio de equipos de refrigeración y gas
+Hobby: Deportes, música
 
 Joaquin Albarracin
 
 Javier Nieva
-Áreas de experiencia: Consultoría funcional y de negocios en Salesforce
-Hobby: Viajes
 
 
 Listado de páginas de referencia:
