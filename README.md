@@ -24,6 +24,8 @@ Licenciada en Nutrición
 Hobby: Cocina, deportes y teatro
 
 Tomas Ricardi
+Áreas de experiencia: Diseño gráfico, reparacion de equipos de refrigeracion y gas.
+Hobby: Deportes.
 
 Joaquin Albarracin -
 Estudiante de Cs de Datos (UBA) -
